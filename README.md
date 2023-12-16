@@ -31,10 +31,10 @@ nomral tool you dont have any access to vip group and you have just one update
 private tool you have access to vip group and tool en your name (banner)  and you have 4-6 update 
 
 
-source code you have 5-6 updates  and you can sell a tool and you can change any thing on tool and i will give you 3 version (1 with activation system  - 2 tool working on phone-pc-all deviceis 3- with out activation system  and you have access to vip group
+source code you have 5-6 updates  and you can s@ll a tool and you can change any thing on tool and i will give you 3 version (1 with activation system  - 2 tool working on phone-pc-all deviceis 3- with out activation system  and you have access to vi/p group
 
 
-if you want to buy it contact me on instagram 
+if you want to b/uy it contact me on instagram 
 
 https://instagram.com/mdip?igshid=NTc4MTIwNjQ2YQ==
 

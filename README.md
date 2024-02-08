@@ -36,13 +36,12 @@ source code you have 5-6 updates  and you can s@ll a tool and you can change any
 
 if you want to b/uy it contact me on instagram 
 
-https://instagram.com/mdip?igshid=NTc4MTIwNjQ2YQ==
-
-or telegram 
-
-https://t.me/abrzi505
+ telegram channel 
+ 
+https://t.me/rootabrzi
 
 
+instagram @mdip
 
 
 
